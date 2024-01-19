@@ -1,0 +1,1 @@
+# 44-FAKT-R-YEL-hesaplama-2
